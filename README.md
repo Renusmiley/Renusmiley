@@ -1,4 +1,4 @@
-### Hi there 👋 I am Renuka
+### Hi there 👋 I'm Renuka
 
 
 - 🔭 I’m currently focusing on my aim
